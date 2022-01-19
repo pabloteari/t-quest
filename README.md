@@ -49,3 +49,10 @@ para obtenção do título de Bacharel em Sistemas de Informação, recebeu a no
 ![Screen Shot 2022-01-19 at 14 51 09](https://user-images.githubusercontent.com/5420991/150202273-2031cb28-5a9b-4833-a70f-3fa3db9b0479.png)
 
 ![Screen Shot 2022-01-19 at 14 52 16](https://user-images.githubusercontent.com/5420991/150202289-72362a35-1d3b-4b53-b295-aed07d6eb208.png)
+
+![Screen Shot 2022-![Screen Shot 2022-01-19 at 14 59 13](https://user-images.githubusercontent.com/5420991/150202462-86a41220-048d-45f8-bffc-e26d8fcc31b1.png)
+01-19 at 14 57 26](https://user-images.githubusercontent.com/5420991/150202398-f75a8b9c-c5e0-4819-aaa9-72a43e31196f.png)
+
+![Screen Shot 2022-01-19 at 14 57 44](https://user-images.githubusercontent.com/5420991/150202521-cd03ce95-a59d-45d8-8e53-decded473763.png)
+
+![Screen Shot 2022-01-19 at 14 57 54](https://user-images.githubusercontent.com/5420991/150202540-1e00e58c-16d8-4203-ab50-98d9596655d0.png)
