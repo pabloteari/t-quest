@@ -8,7 +8,7 @@ It was really cool, I had fun making it.
 It was in 2016.
 The TCC is present in the root folder of the repository.
 
-Pablo Figueiredo Alberto
+Pablo Figueiredo Alberto |
 Ramon Phillipe Giovanelli da Silva
 
 - 
